@@ -1,2 +1,2 @@
 # resume
-descriere avansata de aptitudini inegalabile
+descriere avansata de aptitudini
